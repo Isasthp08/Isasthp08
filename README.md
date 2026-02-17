@@ -1,5 +1,5 @@
 # 💫 About Me:
-Actualmente estoy en bachillerato en la carrera tecnica de programacion<br>Me apasionan las matematicas<br>Me gusta leer, ver peliculas y series, y cocinar<br>He participado en la olimpiada de matematicas mexicana a nivel estatal y nacional<br>Estoy por certificarme en ingles con FCE Cambridge
+Actualmente estoy en bachillerato en la carrera tecnica de programacion<br>Me apasionan las matematicas<br>Me gusta leer, ver peliculas y series, y cocinar<br>He participado en la olimpiada de matematicas mexicana a nivel estatal y nacional<br>Estoy certificada en ingles con FCE Cambridge Nivel B2
 
 
 ## 🌐 Redes Socialse:
